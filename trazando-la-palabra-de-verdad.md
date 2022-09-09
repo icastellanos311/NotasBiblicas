@@ -26,11 +26,9 @@ Las diferencias entre judíos, gentiles y la Iglesia de Dios
 
 A estos doce envió Jesús, y les dio instrucciones, diciendo: Por camino de gentiles no vayáis, y en ciudad de samaritanos no entréis, **Mateo 10:5**
 
-
-
 ## Cambio a Gentiles
 
-
+## Revelación Al Apóstol Pablo
 
 ## Nuevas Revelaciones
 
@@ -40,6 +38,4 @@ Pero del día y la hora nadie sabe, ni aun los ángeles de los cielos, sino solo
 
 6 Entonces los que se habían reunido le preguntaron, diciendo: Señor, ¿restaurarás el reino a Israel en este tiempo? 7 Y les dijo: No os toca a vosotros saber los tiempos o las sazones, que el Padre puso en su sola potestad; 8 pero recibiréis poder, cuando haya venido sobre vosotros el Espíritu Santo, y me seréis testigos en Jerusalén, en toda Judea, en Samaria, y hasta lo último de la tierra. **Hechos 1: 6-8**
 
-
-
-## Revelación Al Apóstol Pablo
+## 
