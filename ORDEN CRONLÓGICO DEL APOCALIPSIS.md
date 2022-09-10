@@ -2,9 +2,7 @@
 
 ## <u>Capítulos 1, 2, 3, 4 y 5</u>
 
-## Apocalipsis 1
-
-Reina-Valera 1960
+## Reina-Valera 1960
 
 ### La revelación de Jesucristo
 
@@ -24,9 +22,7 @@ Reina-Valera 1960
 
 17 Cuando le vi, caí como muerto a sus pies. Y él puso su diestra sobre mí, diciéndome: No temas; yo soy el primero y el último; 18 y el que vivo, y estuve muerto; mas he aquí que vivo por los siglos de los siglos, amén. Y tengo las llaves de la muerte y del Hades. 19 Escribe las cosas que has visto, y las que son, y las que han de ser después de estas. 20 El misterio de las siete estrellas que has visto en mi diestra, y de los siete candeleros de oro: las siete estrellas son los ángeles de las siete iglesias, y los siete candeleros que has visto, son las siete iglesias.
 
-## Apocalipsis 2
-
-Reina-Valera 1960
+---
 
 ### Mensajes a las siete iglesias: El mensaje a Éfeso
 
@@ -52,13 +48,11 @@ Reina-Valera 1960
 
 19 Yo conozco tus obras, y amor, y fe, y servicio, y tu paciencia, y que tus obras postreras son más que las primeras. 20 Pero tengo unas pocas cosas contra ti: que toleras que esa mujer Jezabel, que se dice profetisa, enseñe y seduzca a mis siervos a fornicar y a comer cosas sacrificadas a los ídolos. 21 Y le he dado tiempo para que se arrepienta, pero no quiere arrepentirse de su fornicación. 22 He aquí, yo la arrojo en cama, y en gran tribulación a los que con ella adulteran, si no se arrepienten de las obras de ella. 23 Y a sus hijos heriré de muerte, y todas las iglesias sabrán que yo soy el que escudriña la mente y el corazón; y os daré a cada uno según vuestras obras. 24 Pero a vosotros y a los demás que están en Tiatira, a cuantos no tienen esa doctrina, y no han conocido lo que ellos llaman las profundidades de Satanás, yo os digo: No os impondré otra carga; 25 pero lo que tenéis, retenedlo hasta que yo venga. 26 Al que venciere y guardare mis obras hasta el fin, yo le daré autoridad sobre las naciones, 27 y las regirá con vara de hierro, y serán quebradas como vaso de alfarero; como yo también la he recibido de mi Padre; 28 y le daré la estrella de la mañana. 29 El que tiene oído, oiga lo que el Espíritu dice a las iglesias.
 
-## Apocalipsis 3
-
-Reina-Valera 1960
+---
 
 ### El mensaje a Sardis
 
-3 Escribe al ángel de la iglesia en Sardis: El que tiene los siete espíritus de Dios, y las siete estrellas, dice esto:
+1 Escribe al ángel de la iglesia en Sardis: El que tiene los siete espíritus de Dios, y las siete estrellas, dice esto:
 
 Yo conozco tus obras, que tienes nombre de que vives, y estás muerto. 2 Sé vigilante, y afirma las otras cosas que están para morir; porque no he hallado tus obras perfectas delante de Dios. 3 Acuérdate, pues, de lo que has recibido y oído; y guárdalo, y arrepiéntete. Pues si no velas, vendré sobre ti como ladrón, y no sabrás a qué hora vendré sobre ti. 4 Pero tienes unas pocas personas en Sardis que no han manchado sus vestiduras; y andarán conmigo en vestiduras blancas, porque son dignas. 5 El que venciere será vestido de vestiduras blancas; y no borraré su nombre del libro de la vida, y confesaré su nombre delante de mi Padre, y delante de sus ángeles. 6 El que tiene oído, oiga lo que el Espíritu dice a las iglesias.
 
@@ -74,9 +68,7 @@ Yo conozco tus obras, que tienes nombre de que vives, y estás muerto. 2 Sé v
 
 15 Yo conozco tus obras, que ni eres frío ni caliente. ¡Ojalá fueses frío o caliente! 16 Pero por cuanto eres tibio, y no frío ni caliente, te vomitaré de mi boca. 17 Porque tú dices: Yo soy rico, y me he enriquecido, y de ninguna cosa tengo necesidad; y no sabes que tú eres un desventurado, miserable, pobre, ciego y desnudo. 18 Por tanto, yo te aconsejo que de mí compres oro refinado en fuego, para que seas rico, y vestiduras blancas para vestirte, y que no se descubra la vergüenza de tu desnudez; y unge tus ojos con colirio, para que veas. 19 Yo reprendo y castigo a todos los que amo; sé, pues, celoso, y arrepiéntete. 20 He aquí, yo estoy a la puerta y llamo; si alguno oye mi voz y abre la puerta, entraré a él, y cenaré con él, y él conmigo. 21 Al que venciere, le daré que se siente conmigo en mi trono, así como yo he vencido, y me he sentado con mi Padre en su trono. 22 El que tiene oído, oiga lo que el Espíritu dice a las iglesias.
 
-## Apocalipsis 4
-
-Reina-Valera 1960
+---
 
 ### La adoración celestial
 
@@ -84,9 +76,7 @@ Reina-Valera 1960
 
 6 Y delante del trono había como un mar de vidrio semejante al cristal; y junto al trono, y alrededor del trono, cuatro seres vivientes llenos de ojos delante y detrás. 7 El primer ser viviente era semejante a un león; el segundo era semejante a un becerro; el tercero tenía rostro como de hombre; y el cuarto era semejante a un águila volando. 8 Y los cuatro seres vivientes tenían cada uno seis alas, y alrededor y por dentro estaban llenos de ojos; y no cesaban día y noche de decir: Santo, santo, santo es el Señor Dios Todopoderoso, el que era, el que es, y el que ha de venir. 9 Y siempre que aquellos seres vivientes dan gloria y honra y acción de gracias al que está sentado en el trono, al que vive por los siglos de los siglos, 10 los veinticuatro ancianos se postran delante del que está sentado en el trono, y adoran al que vive por los siglos de los siglos, y echan sus coronas delante del trono, diciendo: 11 Señor, digno eres de recibir la gloria y la honra y el poder; porque tú creaste todas las cosas, y por tu voluntad existen y fueron creadas.
 
-## Apocalipsis 5
-
-Reina-Valera 1960
+---
 
 ### El rollo y el Cordero
 
@@ -95,8 +85,6 @@ Reina-Valera 1960
 6 Y miré, y vi que en medio del trono y de los cuatro seres vivientes, y en medio de los ancianos, estaba en pie un Cordero como inmolado, que tenía siete cuernos, y siete ojos, los cuales son los siete espíritus de Dios enviados por toda la tierra. 7 Y vino, y tomó el libro de la mano derecha del que estaba sentado en el trono. 8 Y cuando hubo tomado el libro, los cuatro seres vivientes y los veinticuatro ancianos se postraron delante del Cordero; todos tenían arpas, y copas de oro llenas de incienso, que son las oraciones de los santos; 9 y cantaban un nuevo cántico, diciendo: Digno eres de tomar el libro y de abrir sus sellos; porque tú fuiste inmolado, y con tu sangre nos has redimido para Dios, de todo linaje y lengua y pueblo y nación; 10 y nos has hecho para nuestro Dios reyes y sacerdotes, y reinaremos sobre la tierra. 11 Y miré, y oí la voz de muchos ángeles alrededor del trono, y de los seres vivientes, y de los ancianos; y su número era millones de millones, 12 que decían a gran voz: El Cordero que fue inmolado es digno de tomar el poder, las riquezas, la sabiduría, la fortaleza, la honra, la gloria y la alabanza. 13 Y a todo lo creado que está en el cielo, y sobre la tierra, y debajo de la tierra, y en el mar, y a todas las cosas que en ellos hay, oí decir: Al que está sentado en el trono, y al Cordero, sea la alabanza, la honra, la gloria y el poder, por los siglos de los siglos. 14 Los cuatro seres vivientes decían: Amén; y los veinticuatro ancianos se postraron sobre sus rostros y adoraron al que vive por los siglos de los siglos.
 
 ## <u>Capítulo 6:1-12 </u>
-
-Reina-Valera 1960
 
 ### Los sellos
 
@@ -113,8 +101,6 @@ Reina-Valera 1960
 12 Miré cuando abrió el sexto sello, y he aquí hubo un gran terremoto; y el sol se puso negro como tela de cilicio, y la luna se volvió toda como sangre;
 
 ## <u>Capítulo 8</u>
-
-Reina-Valera 1960
 
 ### El séptimo sello
 
@@ -136,10 +122,6 @@ Reina-Valera 1960
 
 ## <u>Capítulo 9 y Capítulo 11:14</u>
 
-## Apocalipsis 9
-
-Reina-Valera 1960
-
 9 El quinto ángel tocó la trompeta, y vi una estrella que cayó del cielo a la tierra; y se le dio la llave del pozo del abismo. 2 Y abrió el pozo del abismo, y subió humo del pozo como humo de un gran horno; y se oscureció el sol y el aire por el humo del pozo. 3 Y del humo salieron langostas sobre la tierra; y se les dio poder, como tienen poder los escorpiones de la tierra. 4 Y se les mandó que no dañasen a la hierba de la tierra, ni a cosa verde alguna, ni a ningún árbol, sino solamente a los hombres que no tuviesen el sello de Dios en sus frentes. 5 Y les fue dado, no que los matasen, sino que los atormentasen cinco meses; y su tormento era como tormento de escorpión cuando hiere al hombre. 6 Y en aquellos días los hombres buscarán la muerte, pero no la hallarán; y ansiarán morir, pero la muerte huirá de ellos.
 
 7 El aspecto de las langostas era semejante a caballos preparados para la guerra; en las cabezas tenían como coronas de oro; sus caras eran como caras humanas; 8 tenían cabello como cabello de mujer; sus dientes eran como de leones; 9 tenían corazas como corazas de hierro; el ruido de sus alas era como el estruendo de muchos carros de caballos corriendo a la batalla; 10 tenían colas como de escorpiones, y también aguijones; y en sus colas tenían poder para dañar a los hombres durante cinco meses. 11 Y tienen por rey sobre ellos al ángel del abismo, cuyo nombre en hebreo es Abadón, y en griego, Apolión.
@@ -150,23 +132,21 @@ Reina-Valera 1960
 
 20 Y los otros hombres que no fueron muertos con estas plagas, ni aun así se arrepintieron de las obras de sus manos, ni dejaron de adorar a los demonios, y a las imágenes de oro, de plata, de bronce, de piedra y de madera, las cuales no pueden ver, ni oír, ni andar; 21 y no se arrepintieron de sus homicidios, ni de sus hechicerías, ni de su fornicación, ni de sus hurtos.
 
-## Apocalipsis 11
+---
 
-Reina-Valera 1960
+
 
 14 El segundo ay pasó; he aquí, el tercer ay viene pronto.
 
 ## <u>Capítulo 10:1-11 y Capítulo 11:15-19 Tercer Ay (pasó)</u>
-
-## Apocalipsis 10
-
-Reina-Valera 1960
 
 ### El ángel con el librito
 
 10 Vi descender del cielo a otro ángel fuerte, envuelto en una nube, con el arco iris sobre su cabeza; y su rostro era como el sol, y sus pies como columnas de fuego. 2 Tenía en su mano un librito abierto; y puso su pie derecho sobre el mar, y el izquierdo sobre la tierra; 3 y clamó a gran voz, como ruge un león; y cuando hubo clamado, siete truenos emitieron sus voces. 4 Cuando los siete truenos hubieron emitido sus voces, yo iba a escribir; pero oí una voz del cielo que me decía: Sella las cosas que los siete truenos han dicho, y no las escribas. 5 Y el ángel que vi en pie sobre el mar y sobre la tierra, levantó su mano al cielo, 6 y juró por el que vive por los siglos de los siglos, que creó el cielo y las cosas que están en él, y la tierra y las cosas que están en ella, y el mar y las cosas que están en él, que el tiempo no sería más, 7 sino que en los días de la voz del séptimo ángel, cuando él comience a tocar la trompeta, el misterio de Dios se consumará, como él lo anunció a sus siervos los profetas.
 
 8 La voz que oí del cielo habló otra vez conmigo, y dijo: Ve y toma el librito que está abierto en la mano del ángel que está en pie sobre el mar y sobre la tierra. 9 Y fui al ángel, diciéndole que me diese el librito. Y él me dijo: Toma, y cómelo; y te amargará el vientre, pero en tu boca será dulce como la miel. 10 Entonces tomé el librito de la mano del ángel, y lo comí; y era dulce en mi boca como la miel, pero cuando lo hube comido, amargó mi vientre. 11 Y él me dijo: Es necesario que profetices otra vez sobre muchos pueblos, naciones, lenguas y reyes.
+
+---
 
 ### La séptima trompeta
 
