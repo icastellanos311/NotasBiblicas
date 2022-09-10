@@ -156,22 +156,212 @@ Yo conozco tus obras, que tienes nombre de que vives, y estás muerto. 2 Sé v
 
 ## <u>Capítulo 7:9-17</u>
 
+### La multitud vestida de ropas blancas
+
+9 Después de esto miré, y he aquí una gran multitud, la cual nadie podía contar, de todas naciones y tribus y pueblos y lenguas, que estaban delante del trono y en la presencia del Cordero, vestidos de ropas blancas, y con palmas en las manos; 10 y clamaban a gran voz, diciendo: La salvación pertenece a nuestro Dios que está sentado en el trono, y al Cordero. 11 Y todos los ángeles estaban en pie alrededor del trono, y de los ancianos y de los cuatro seres vivientes; y se postraron sobre sus rostros delante del trono, y adoraron a Dios, 12 diciendo: Amén. La bendición y la gloria y la sabiduría y la acción de gracias y la honra y el poder y la fortaleza, sean a nuestro Dios por los siglos de los siglos. Amén.
+
+13 Entonces uno de los ancianos habló, diciéndome: Estos que están vestidos de ropas blancas, ¿quiénes son, y de dónde han venido? 14 Yo le dije: Señor, tú lo sabes. Y él me dijo: Estos son los que han salido de la gran tribulación, y han lavado sus ropas, y las han emblanquecido en la sangre del Cordero. 15 Por esto están delante del trono de Dios, y le sirven día y noche en su templo; y el que está sentado sobre el trono extenderá su tabernáculo sobre ellos. 16 Ya no tendrán hambre ni sed, y el sol no caerá más sobre ellos, ni calor alguno; 17 porque el Cordero que está en medio del trono los pastoreará, y los guiará a fuentes de aguas de vida; y Dios enjugará toda lágrima de los ojos de ellos.
+
 ## <u>Capítulo 12 y Capítulo 13</u>
+
+### La mujer y el dragón
+
+1 Apareció en el cielo una gran señal: una mujer vestida del sol, con la luna debajo de sus pies, y sobre su cabeza una corona de doce estrellas. 2 Y estando encinta, clamaba con dolores de parto, en la angustia del alumbramiento. 3 También apareció otra señal en el cielo: he aquí un gran dragón escarlata, que tenía siete cabezas y diez cuernos, y en sus cabezas siete diademas; 4 y su cola arrastraba la tercera parte de las estrellas del cielo, y las arrojó sobre la tierra. Y el dragón se paró frente a la mujer que estaba para dar a luz, a fin de devorar a su hijo tan pronto como naciese. 5 Y ella dio a luz un hijo varón, que regirá con vara de hierro a todas las naciones; y su hijo fue arrebatado para Dios y para su trono. 6 Y la mujer huyó al desierto, donde tiene lugar preparado por Dios, para que allí la sustenten por mil doscientos sesenta días.
+
+7 Después hubo una gran batalla en el cielo: Miguel y sus ángeles luchaban contra el dragón; y luchaban el dragón y sus ángeles; 8 pero no prevalecieron, ni se halló ya lugar para ellos en el cielo. 9 Y fue lanzado fuera el gran dragón, la serpiente antigua, que se llama diablo y Satanás, el cual engaña al mundo entero; fue arrojado a la tierra, y sus ángeles fueron arrojados con él. 10 Entonces oí una gran voz en el cielo, que decía: Ahora ha venido la salvación, el poder, y el reino de nuestro Dios, y la autoridad de su Cristo; porque ha sido lanzado fuera el acusador de nuestros hermanos, el que los acusaba delante de nuestro Dios día y noche. 11 Y ellos le han vencido por medio de la sangre del Cordero y de la palabra del testimonio de ellos, y menospreciaron sus vidas hasta la muerte. 12 Por lo cual alegraos, cielos, y los que moráis en ellos. ¡Ay de los moradores de la tierra y del mar! porque el diablo ha descendido a vosotros con gran ira, sabiendo que tiene poco tiempo.
+
+13 Y cuando vio el dragón que había sido arrojado a la tierra, persiguió a la mujer que había dado a luz al hijo varón. 14 Y se le dieron a la mujer las dos alas de la gran águila, para que volase de delante de la serpiente al desierto, a su lugar, donde es sustentada por un tiempo, y tiempos, y la mitad de un tiempo. 15 Y la serpiente arrojó de su boca, tras la mujer, agua como un río, para que fuese arrastrada por el río. 16 Pero la tierra ayudó a la mujer, pues la tierra abrió su boca y tragó el río que el dragón había echado de su boca. 17 Entonces el dragón se llenó de ira contra la mujer; y se fue a hacer guerra contra el resto de la descendencia de ella, los que guardan los mandamientos de Dios y tienen el testimonio de Jesucristo.
+
+---
+
+### Las dos bestias
+
+13 Me paré sobre la arena del mar, y vi subir del mar una bestia que tenía siete cabezas y diez cuernos; y en sus cuernos diez diademas; y sobre sus cabezas, un nombre blasfemo. 2 Y la bestia que vi era semejante a un leopardo, y sus pies como de oso, y su boca como boca de león. Y el dragón le dio su poder y su trono, y grande autoridad. 3 Vi una de sus cabezas como herida de muerte, pero su herida mortal fue sanada; y se maravilló toda la tierra en pos de la bestia, 4 y adoraron al dragón que había dado autoridad a la bestia, y adoraron a la bestia, diciendo: ¿Quién como la bestia, y quién podrá luchar contra ella?
+
+5 También se le dio boca que hablaba grandes cosas y blasfemias; y se le dio autoridad para actuar cuarenta y dos meses. 6 Y abrió su boca en blasfemias contra Dios, para blasfemar de su nombre, de su tabernáculo, y de los que moran en el cielo. 7 Y se le permitió hacer guerra contra los santos, y vencerlos. También se le dio autoridad sobre toda tribu, pueblo, lengua y nación. 8 Y la adoraron todos los moradores de la tierra cuyos nombres no estaban escritos en el libro de la vida del Cordero que fue inmolado desde el principio del mundo. 9 Si alguno tiene oído, oiga. 10 Si alguno lleva en cautividad, va en cautividad; si alguno mata a espada, a espada debe ser muerto. Aquí está la paciencia y la fe de los santos.
+
+11 Después vi otra bestia que subía de la tierra; y tenía dos cuernos semejantes a los de un cordero, pero hablaba como dragón. 12 Y ejerce toda la autoridad de la primera bestia en presencia de ella, y hace que la tierra y los moradores de ella adoren a la primera bestia, cuya herida mortal fue sanada. 13 También hace grandes señales, de tal manera que aun hace descender fuego del cielo a la tierra delante de los hombres. 14 Y engaña a los moradores de la tierra con las señales que se le ha permitido hacer en presencia de la bestia, mandando a los moradores de la tierra que le hagan imagen a la bestia que tiene la herida de espada, y vivió. 15 Y se le permitió infundir aliento a la imagen de la bestia, para que la imagen hablase e hiciese matar a todo el que no la adorase. 16 Y hacía que a todos, pequeños y grandes, ricos y pobres, libres y esclavos, se les pusiese una marca en la mano derecha, o en la frente; 17 y que ninguno pudiese comprar ni vender, sino el que tuviese la marca o el nombre de la bestia, o el número de su nombre. 18 Aquí hay sabiduría. El que tiene entendimiento, cuente el número de la bestia, pues es número de hombre. Y su número es seiscientos sesenta y seis.
 
 ## <u>Capítulo 7:1-8 y Capítulo 11: 1-13</u>
 
+### Los 144 mil sellados
+
+1 Después de esto vi a cuatro ángeles en pie sobre los cuatro ángulos de la tierra, que detenían los cuatro vientos de la tierra, para que no soplase viento alguno sobre la tierra, ni sobre el mar, ni sobre ningún árbol. 2 Vi también a otro ángel que subía de donde sale el sol, y tenía el sello del Dios vivo; y clamó a gran voz a los cuatro ángeles, a quienes se les había dado el poder de hacer daño a la tierra y al mar, 3 diciendo: No hagáis daño a la tierra, ni al mar, ni a los árboles, hasta que hayamos sellado en sus frentes a los siervos de nuestro Dios. 4 Y oí el número de los sellados: ciento cuarenta y cuatro mil sellados de todas las tribus de los hijos de Israel. 5 De la tribu de Judá, doce mil sellados. De la tribu de Rubén, doce mil sellados. De la tribu de Gad, doce mil sellados. 6 De la tribu de Aser, doce mil sellados. De la tribu de Neftalí, doce mil sellados. De la tribu de Manasés, doce mil sellados. 7 De la tribu de Simeón, doce mil sellados. De la tribu de Leví, doce mil sellados. De la tribu de Isacar, doce mil sellados. 8 De la tribu de Zabulón, doce mil sellados. De la tribu de José, doce mil sellados. De la tribu de Benjamín, doce mil sellados.
+
+---
+
+### Los dos testigos
+
+1 Entonces me fue dada una caña semejante a una vara de medir, y se me dijo: Levántate, y mide el templo de Dios, y el altar, y a los que adoran en él. 2 Pero el patio que está fuera del templo déjalo aparte, y no lo midas, porque ha sido entregado a los gentiles; y ellos hollarán la ciudad santa cuarenta y dos meses. 3 Y daré a mis dos testigos que profeticen por mil doscientos sesenta días, vestidos de cilicio.
+
+4 Estos testigos son los dos olivos, y los dos candeleros que están en pie delante del Dios de la tierra. 5 Si alguno quiere dañarlos, sale fuego de la boca de ellos, y devora a sus enemigos; y si alguno quiere hacerles daño, debe morir él de la misma manera. 6 Estos tienen poder para cerrar el cielo, a fin de que no llueva en los días de su profecía; y tienen poder sobre las aguas para convertirlas en sangre, y para herir la tierra con toda plaga, cuantas veces quieran. 7 Cuando hayan acabado su testimonio, la bestia que sube del abismo hará guerra contra ellos, y los vencerá y los matará. 8 Y sus cadáveres estarán en la plaza de la grande ciudad que en sentido espiritual se llama Sodoma y Egipto, donde también nuestro Señor fue crucificado. 9 Y los de los pueblos, tribus, lenguas y naciones verán sus cadáveres por tres días y medio, y no permitirán que sean sepultados. 10 Y los moradores de la tierra se regocijarán sobre ellos y se alegrarán, y se enviarán regalos unos a otros; porque estos dos profetas habían atormentado a los moradores de la tierra. 11 Pero después de tres días y medio entró en ellos el espíritu de vida enviado por Dios, y se levantaron sobre sus pies, y cayó gran temor sobre los que los vieron. 12 Y oyeron una gran voz del cielo, que les decía: Subid acá. Y subieron al cielo en una nube; y sus enemigos los vieron. 13 En aquella hora hubo un gran terremoto, y la décima parte de la ciudad se derrumbó, y por el terremoto murieron en número de siete mil hombres; y los demás se aterrorizaron, y dieron gloria al Dios del cielo.
+
 ## <u>Capítulo 14:1-20 y Capítulo 15:1-8</u>
+
+### El cántico de los 144 mil
+
+1 Después miré, y he aquí el Cordero estaba en pie sobre el monte de Sion, y con él ciento cuarenta y cuatro mil, que tenían el nombre de él y el de su Padre escrito en la frente. 2 Y oí una voz del cielo como estruendo de muchas aguas, y como sonido de un gran trueno; y la voz que oí era como de arpistas que tocaban sus arpas. 3 Y cantaban un cántico nuevo delante del trono, y delante de los cuatro seres vivientes, y de los ancianos; y nadie podía aprender el cántico sino aquellos ciento cuarenta y cuatro mil que fueron redimidos de entre los de la tierra. 4 Estos son los que no se contaminaron con mujeres, pues son vírgenes. Estos son los que siguen al Cordero por dondequiera que va. Estos fueron redimidos de entre los hombres como primicias para Dios y para el Cordero; 5 y en sus bocas no fue hallada mentira, pues son sin mancha delante del trono de Dios.
+
+### El mensaje de los tres ángeles
+
+6 Vi volar por en medio del cielo a otro ángel, que tenía el evangelio eterno para predicarlo a los moradores de la tierra, a toda nación, tribu, lengua y pueblo, 7 diciendo a gran voz: Temed a Dios, y dadle gloria, porque la hora de su juicio ha llegado; y adorad a aquel que hizo el cielo y la tierra, el mar y las fuentes de las aguas.
+
+8 Otro ángel le siguió, diciendo: Ha caído, ha caído Babilonia, la gran ciudad, porque ha hecho beber a todas las naciones del vino del furor de su fornicación.
+
+9 Y el tercer ángel los siguió, diciendo a gran voz: Si alguno adora a la bestia y a su imagen, y recibe la marca en su frente o en su mano, 10 él también beberá del vino de la ira de Dios, que ha sido vaciado puro en el cáliz de su ira; y será atormentado con fuego y azufre delante de los santos ángeles y del Cordero; 11 y el humo de su tormento sube por los siglos de los siglos. Y no tienen reposo de día ni de noche los que adoran a la bestia y a su imagen, ni nadie que reciba la marca de su nombre.
+
+12 Aquí está la paciencia de los santos, los que guardan los mandamientos de Dios y la fe de Jesús.
+
+13 Oí una voz que desde el cielo me decía: Escribe: Bienaventurados de aquí en adelante los muertos que mueren en el Señor. Sí, dice el Espíritu, descansarán de sus trabajos, porque sus obras con ellos siguen.
+
+### La tierra es segada
+
+14 Miré, y he aquí una nube blanca; y sobre la nube uno sentado semejante al Hijo del Hombre, que tenía en la cabeza una corona de oro, y en la mano una hoz aguda. 15 Y del templo salió otro ángel, clamando a gran voz al que estaba sentado sobre la nube: Mete tu hoz, y siega; porque la hora de segar ha llegado, pues la mies de la tierra está madura. 16 Y el que estaba sentado sobre la nube metió su hoz en la tierra, y la tierra fue segada.
+
+17 Salió otro ángel del templo que está en el cielo, teniendo también una hoz aguda. 18 Y salió del altar otro ángel, que tenía poder sobre el fuego, y llamó a gran voz al que tenía la hoz aguda, diciendo: Mete tu hoz aguda, y vendimia los racimos de la tierra, porque sus uvas están maduras. 19 Y el ángel arrojó su hoz en la tierra, y vendimió la viña de la tierra, y echó las uvas en el gran lagar de la ira de Dios. 20 Y fue pisado el lagar fuera de la ciudad, y del lagar salió sangre hasta los frenos de los caballos, por mil seiscientos estadios.
+
+---
+
+### Los ángeles con las siete postreras plagas
+
+1 Vi en el cielo otra señal, grande y admirable: siete ángeles que tenían las siete plagas postreras; porque en ellas se consumaba la ira de Dios.
+
+2 Vi también como un mar de vidrio mezclado con fuego; y a los que habían alcanzado la victoria sobre la bestia y su imagen, y su marca y el número de su nombre, en pie sobre el mar de vidrio, con las arpas de Dios. 3 Y cantan el cántico de Moisés siervo de Dios, y el cántico del Cordero, diciendo: Grandes y maravillosas son tus obras, Señor Dios Todopoderoso; justos y verdaderos son tus caminos, Rey de los santos. 4 ¿Quién no te temerá, oh Señor, y glorificará tu nombre? pues solo tú eres santo; por lo cual todas las naciones vendrán y te adorarán, porque tus juicios se han manifestado.
+
+5 Después de estas cosas miré, y he aquí fue abierto en el cielo el templo del tabernáculo del testimonio; 6 y del templo salieron los siete ángeles que tenían las siete plagas, vestidos de lino limpio y resplandeciente, y ceñidos alrededor del pecho con cintos de oro. 7 Y uno de los cuatro seres vivientes dio a los siete ángeles siete copas de oro, llenas de la ira de Dios, que vive por los siglos de los siglos. 8 Y el templo se llenó de humo por la gloria de Dios, y por su poder; y nadie podía entrar en el templo hasta que se hubiesen cumplido las siete plagas de los siete ángeles
 
 ## <u>Capítulo 17 y Capítulo 16: 1-16</u>
 
+### Condenación de la gran ramera
+
+1 Vino entonces uno de los siete ángeles que tenían las siete copas, y habló conmigo diciéndome: Ven acá, y te mostraré la sentencia contra la gran ramera, la que está sentada sobre muchas aguas; 2 con la cual han fornicado los reyes de la tierra, y los moradores de la tierra se han embriagado con el vino de su fornicación. 3 Y me llevó en el Espíritu al desierto; y vi a una mujer sentada sobre una bestia escarlata llena de nombres de blasfemia, que tenía siete cabezas y diez cuernos. 4 Y la mujer estaba vestida de púrpura y escarlata, y adornada de oro, de piedras preciosas y de perlas, y tenía en la mano un cáliz de oro lleno de abominaciones y de la inmundicia de su fornicación; 5 y en su frente un nombre escrito, un misterio: BABILONIA LA GRANDE, LA MADRE DE LAS RAMERAS Y DE LAS ABOMINACIONES DE LA TIERRA. 6 Vi a la mujer ebria de la sangre de los santos, y de la sangre de los mártires de Jesús; y cuando la vi, quedé asombrado con gran asombro.
+
+7 Y el ángel me dijo: ¿Por qué te asombras? Yo te diré el misterio de la mujer, y de la bestia que la trae, la cual tiene las siete cabezas y los diez cuernos. 8 La bestia que has visto, era, y no es; y está para subir del abismo e ir a perdición; y los moradores de la tierra, aquellos cuyos nombres no están escritos desde la fundación del mundo en el libro de la vida, se asombrarán viendo la bestia que era y no es, y será. 9 Esto, para la mente que tenga sabiduría: Las siete cabezas son siete montes, sobre los cuales se sienta la mujer, 10 y son siete reyes. Cinco de ellos han caído; uno es, y el otro aún no ha venido; y cuando venga, es necesario que dure breve tiempo. 11 La bestia que era, y no es, es también el octavo; y es de entre los siete, y va a la perdición. 12 Y los diez cuernos que has visto, son diez reyes, que aún no han recibido reino; pero por una hora recibirán autoridad como reyes juntamente con la bestia. 13 Estos tienen un mismo propósito, y entregarán su poder y su autoridad a la bestia. 14 Pelearán contra el Cordero, y el Cordero los vencerá, porque él es Señor de señores y Rey de reyes; y los que están con él son llamados y elegidos y fieles.
+
+15 Me dijo también: Las aguas que has visto donde la ramera se sienta, son pueblos, muchedumbres, naciones y lenguas. 16 Y los diez cuernos que viste en la bestia, estos aborrecerán a la ramera, y la dejarán desolada y desnuda; y devorarán sus carnes, y la quemarán con fuego; 17 porque Dios ha puesto en sus corazones el ejecutar lo que él quiso: ponerse de acuerdo, y dar su reino a la bestia, hasta que se cumplan las palabras de Dios. 18 Y la mujer que has visto es la gran ciudad que reina sobre los reyes de la tierra.
+
+---
+
+### Las copas de ira
+
+1 Oí una gran voz que decía desde el templo a los siete ángeles: Id y derramad sobre la tierra las siete copas de la ira de Dios.
+
+2 Fue el primero, y derramó su copa sobre la tierra, y vino una úlcera maligna y pestilente sobre los hombres que tenían la marca de la bestia, y que adoraban su imagen.
+
+3 El segundo ángel derramó su copa sobre el mar, y este se convirtió en sangre como de muerto; y murió todo ser vivo que había en el mar.
+
+4 El tercer ángel derramó su copa sobre los ríos, y sobre las fuentes de las aguas, y se convirtieron en sangre. 5 Y oí al ángel de las aguas, que decía: Justo eres tú, oh Señor, el que eres y que eras, el Santo, porque has juzgado estas cosas. 6 Por cuanto derramaron la sangre de los santos y de los profetas, también tú les has dado a beber sangre; pues lo merecen. 7 También oí a otro, que desde el altar decía: Ciertamente, Señor Dios Todopoderoso, tus juicios son verdaderos y justos.
+
+8 El cuarto ángel derramó su copa sobre el sol, al cual fue dado quemar a los hombres con fuego. 9 Y los hombres se quemaron con el gran calor, y blasfemaron el nombre de Dios, que tiene poder sobre estas plagas, y no se arrepintieron para darle gloria.
+
+10 El quinto ángel derramó su copa sobre el trono de la bestia; y su reino se cubrió de tinieblas, y mordían de dolor sus lenguas, 11 y blasfemaron contra el Dios del cielo por sus dolores y por sus úlceras, y no se arrepintieron de sus obras.
+
+12 El sexto ángel derramó su copa sobre el gran río Éufrates; y el agua de este se secó, para que estuviese preparado el camino a los reyes del oriente. 13 Y vi salir de la boca del dragón, y de la boca de la bestia, y de la boca del falso profeta, tres espíritus inmundos a manera de ranas; 14 pues son espíritus de demonios, que hacen señales, y van a los reyes de la tierra en todo el mundo, para reunirlos a la batalla de aquel gran día del Dios Todopoderoso. 15 He aquí, yo vengo como ladrón. Bienaventurado el que vela, y guarda sus ropas, para que no ande desnudo, y vean su vergüenza. 16 Y los reunió en el lugar que en hebreo se llama Armagedón.
+
 ## <u>Capítulo 18 y Capítulo 16:17-21</u>
 
-## <u>Capítulo 19:1-6, Capítulo 6:12B y 6:13-17</u>
+### La caída de Babilonia
+
+1 Después de esto vi a otro ángel descender del cielo con gran poder; y la tierra fue alumbrada con su gloria. 2 Y clamó con voz potente, diciendo: Ha caído, ha caído la gran Babilonia, y se ha hecho habitación de demonios y guarida de todo espíritu inmundo, y albergue de toda ave inmunda y aborrecible. 3 Porque todas las naciones han bebido del vino del furor de su fornicación; y los reyes de la tierra han fornicado con ella, y los mercaderes de la tierra se han enriquecido de la potencia de sus deleites. 4 Y oí otra voz del cielo, que decía: Salid de ella, pueblo mío, para que no seáis partícipes de sus pecados, ni recibáis parte de sus plagas; 5 porque sus pecados han llegado hasta el cielo, y Dios se ha acordado de sus maldades. 6 Dadle a ella como ella os ha dado, y pagadle doble según sus obras; en el cáliz en que ella preparó bebida, preparadle a ella el doble. 7 Cuanto ella se ha glorificado y ha vivido en deleites, tanto dadle de tormento y llanto; porque dice en su corazón: Yo estoy sentada como reina, y no soy viuda, y no veré llanto; 8 por lo cual en un solo día vendrán sus plagas; muerte, llanto y hambre, y será quemada con fuego; porque poderoso es Dios el Señor, que la juzga.
+
+9 Y los reyes de la tierra que han fornicado con ella, y con ella han vivido en deleites, llorarán y harán lamentación sobre ella, cuando vean el humo de su incendio, 10 parándose lejos por el temor de su tormento, diciendo: ¡Ay, ay, de la gran ciudad de Babilonia, la ciudad fuerte; porque en una hora vino tu juicio!
+
+11 Y los mercaderes de la tierra lloran y hacen lamentación sobre ella, porque ninguno compra más sus mercaderías; 12 mercadería de oro, de plata, de piedras preciosas, de perlas, de lino fino, de púrpura, de seda, de escarlata, de toda madera olorosa, de todo objeto de marfil, de todo objeto de madera preciosa, de cobre, de hierro y de mármol; 13 y canela, especias aromáticas, incienso, mirra, olíbano, vino, aceite, flor de harina, trigo, bestias, ovejas, caballos y carros, y esclavos, almas de hombres. 14 Los frutos codiciados por tu alma se apartaron de ti, y todas las cosas exquisitas y espléndidas te han faltado, y nunca más las hallarás.
+
+15 Los mercaderes de estas cosas, que se han enriquecido a costa de ella, se pararán lejos por el temor de su tormento, llorando y lamentando, 16 y diciendo: ¡Ay, ay, de la gran ciudad, que estaba vestida de lino fino, de púrpura y de escarlata, y estaba adornada de oro, de piedras preciosas y de perlas! 17 Porque en una hora han sido consumidas tantas riquezas. Y todo piloto, y todos los que viajan en naves, y marineros, y todos los que trabajan en el mar, se pararon lejos; 18 y viendo el humo de su incendio, dieron voces, diciendo: ¿Qué ciudad era semejante a esta gran ciudad? 19 Y echaron polvo sobre sus cabezas, y dieron voces, llorando y lamentando, diciendo: ¡Ay, ay de la gran ciudad, en la cual todos los que tenían naves en el mar se habían enriquecido de sus riquezas; pues en una hora ha sido desolada! 20 Alégrate sobre ella, cielo, y vosotros, santos, apóstoles y profetas; porque Dios os ha hecho justicia en ella.
+
+21 Y un ángel poderoso tomó una piedra, como una gran piedra de molino, y la arrojó en el mar, diciendo: Con el mismo ímpetu será derribada Babilonia, la gran ciudad, y nunca más será hallada. 22 Y voz de arpistas, de músicos, de flautistas y de trompeteros no se oirá más en ti; y ningún artífice de oficio alguno se hallará más en ti, ni ruido de molino se oirá más en ti. 23 Luz de lámpara no alumbrará más en ti, ni voz de esposo y de esposa se oirá más en ti; porque tus mercaderes eran los grandes de la tierra; pues por tus hechicerías fueron engañadas todas las naciones. 24 Y en ella se halló la sangre de los profetas y de los santos, y de todos los que han sido muertos en la tierra.
+
+---
+
+17 El séptimo ángel derramó su copa por el aire; y salió una gran voz del templo del cielo, del trono, diciendo: Hecho está. 18 Entonces hubo relámpagos y voces y truenos, y un gran temblor de tierra, un terremoto tan grande, cual no lo hubo jamás desde que los hombres han estado sobre la tierra. 19 Y la gran ciudad fue dividida en tres partes, y las ciudades de las naciones cayeron; y la gran Babilonia vino en memoria delante de Dios, para darle el cáliz del vino del ardor de su ira. 20 Y toda isla huyó, y los montes no fueron hallados. 21 Y cayó del cielo sobre los hombres un enorme granizo como del peso de un talento; y los hombres blasfemaron contra Dios por la plaga del granizo; porque su plaga fue sobremanera grande.
+
+## <u>Capítulo 19:1-6 y 6:12-17</u>
+
+### Alabanzas en el cielo
+
+1 Después de esto oí una gran voz de gran multitud en el cielo, que decía: ¡Aleluya! Salvación y honra y gloria y poder son del Señor Dios nuestro; 2 porque sus juicios son verdaderos y justos; pues ha juzgado a la gran ramera que ha corrompido a la tierra con su fornicación, y ha vengado la sangre de sus siervos de la mano de ella. 3 Otra vez dijeron: ¡Aleluya! Y el humo de ella sube por los siglos de los siglos. 4 Y los veinticuatro ancianos y los cuatro seres vivientes se postraron en tierra y adoraron a Dios, que estaba sentado en el trono, y decían: ¡Amén! ¡Aleluya! 5 Y salió del trono una voz que decía: Alabad a nuestro Dios todos sus siervos, y los que le teméis, así pequeños como grandes. 6 Y oí como la voz de una gran multitud, como el estruendo de muchas aguas, y como la voz de grandes truenos, que decía: ¡Aleluya, porque el Señor nuestro Dios Todopoderoso reina!
+
+---
+
+12 Miré cuando abrió el sexto sello, y he aquí hubo un gran terremoto; y el sol se puso negro como tela de cilicio, y la luna se volvió toda como sangre; 13 y las estrellas del cielo cayeron sobre la tierra, como la higuera deja caer sus higos cuando es sacudida por un fuerte viento. 14 Y el cielo se desvaneció como un pergamino que se enrolla; y todo monte y toda isla se removió de su lugar. 15 Y los reyes de la tierra, y los grandes, los ricos, los capitanes, los poderosos, y todo siervo y todo libre, se escondieron en las cuevas y entre las peñas de los montes; 16 y decían a los montes y a las peñas: Caed sobre nosotros, y escondednos del rostro de aquel que está sentado sobre el trono, y de la ira del Cordero; 17 porque el gran día de su ira ha llegado; ¿y quién podrá sostenerse en pie?
 
 ## <u>Capítulo 19:11-21 y Capítulo 20:1-9</u>
 
+### El jinete del caballo blanco
+
+11 Entonces vi el cielo abierto; y he aquí un caballo blanco, y el que lo montaba se llamaba Fiel y Verdadero, y con justicia juzga y pelea. 12 Sus ojos eran como llama de fuego, y había en su cabeza muchas diademas; y tenía un nombre escrito que ninguno conocía sino él mismo. 13 Estaba vestido de una ropa teñida en sangre; y su nombre es: EL VERBO DE DIOS. 14 Y los ejércitos celestiales, vestidos de lino finísimo, blanco y limpio, le seguían en caballos blancos. 15 De su boca sale una espada aguda, para herir con ella a las naciones, y él las regirá con vara de hierro; y él pisa el lagar del vino del furor y de la ira del Dios Todopoderoso. 16 Y en su vestidura y en su muslo tiene escrito este nombre: REY DE REYES Y SEÑOR DE SEÑORES.
+
+17 Y vi a un ángel que estaba en pie en el sol, y clamó a gran voz, diciendo a todas las aves que vuelan en medio del cielo: Venid, y congregaos a la gran cena de Dios, 18 para que comáis carnes de reyes y de capitanes, y carnes de fuertes, carnes de caballos y de sus jinetes, y carnes de todos, libres y esclavos, pequeños y grandes. 19 Y vi a la bestia, a los reyes de la tierra y a sus ejércitos, reunidos para guerrear contra el que montaba el caballo, y contra su ejército. 20 Y la bestia fue apresada, y con ella el falso profeta que había hecho delante de ella las señales con las cuales había engañado a los que recibieron la marca de la bestia, y habían adorado su imagen. Estos dos fueron lanzados vivos dentro de un lago de fuego que arde con azufre. 21 Y los demás fueron muertos con la espada que salía de la boca del que montaba el caballo, y todas las aves se saciaron de las carnes de ellos.
+
+---
+
+### Los mil años
+
+1 Vi a un ángel que descendía del cielo, con la llave del abismo, y una gran cadena en la mano. 2 Y prendió al dragón, la serpiente antigua, que es el diablo y Satanás, y lo ató por mil años; 3 y lo arrojó al abismo, y lo encerró, y puso su sello sobre él, para que no engañase más a las naciones, hasta que fuesen cumplidos mil años; y después de esto debe ser desatado por un poco de tiempo.
+
+4 Y vi tronos, y se sentaron sobre ellos los que recibieron facultad de juzgar; y vi las almas de los decapitados por causa del testimonio de Jesús y por la palabra de Dios, los que no habían adorado a la bestia ni a su imagen, y que no recibieron la marca en sus frentes ni en sus manos; y vivieron y reinaron con Cristo mil años. 5 Pero los otros muertos no volvieron a vivir hasta que se cumplieron mil años. Esta es la primera resurrección. 6 Bienaventurado y santo el que tiene parte en la primera resurrección; la segunda muerte no tiene potestad sobre estos, sino que serán sacerdotes de Dios y de Cristo, y reinarán con él mil años.
+
+7 Cuando los mil años se cumplan, Satanás será suelto de su prisión, 8 y saldrá a engañar a las naciones que están en los cuatro ángulos de la tierra, a Gog y a Magog, a fin de reunirlos para la batalla; el número de los cuales es como la arena del mar. 9 Y subieron sobre la anchura de la tierra, y rodearon el campamento de los santos y la ciudad amada; y de Dios descendió fuego del cielo, y los consumió.
+
 ## <u>Capítulo 6:13-14 y Capítulo 20:10-15</u>
+
+13 y las estrellas del cielo cayeron sobre la tierra, como la higuera deja caer sus higos cuando es sacudida por un fuerte viento. 14 Y el cielo se desvaneció como un pergamino que se enrolla; y todo monte y toda isla se removió de su lugar.
+
+---
+
+10 Y el diablo que los engañaba fue lanzado en el lago de fuego y azufre, donde estaban la bestia y el falso profeta; y serán atormentados día y noche por los siglos de los siglos.
+
+### El juicio ante el gran trono blanco
+
+11 Y vi un gran trono blanco y al que estaba sentado en él, de delante del cual huyeron la tierra y el cielo, y ningún lugar se encontró para ellos. 12 Y vi a los muertos, grandes y pequeños, de pie ante Dios; y los libros fueron abiertos, y otro libro fue abierto, el cual es el libro de la vida; y fueron juzgados los muertos por las cosas que estaban escritas en los libros, según sus obras. 13 Y el mar entregó los muertos que había en él; y la muerte y el Hades entregaron los muertos que había en ellos; y fueron juzgados cada uno según sus obras. 14 Y la muerte y el Hades fueron lanzados al lago de fuego. Esta es la muerte segunda. 15 Y el que no se halló inscrito en el libro de la vida fue lanzado al lago de fuego.
 
 ## <u>Capítulo 21:1-27</u>
 
+### Cielo nuevo y tierra nueva
+
+1 Vi un cielo nuevo y una tierra nueva; porque el primer cielo y la primera tierra pasaron, y el mar ya no existía más. 2 Y yo Juan vi la santa ciudad, la nueva Jerusalén, descender del cielo, de Dios, dispuesta como una esposa ataviada para su marido. 3 Y oí una gran voz del cielo que decía: He aquí el tabernáculo de Dios con los hombres, y él morará con ellos; y ellos serán su pueblo, y Dios mismo estará con ellos como su Dios. 4 Enjugará Dios toda lágrima de los ojos de ellos; y ya no habrá muerte, ni habrá más llanto, ni clamor, ni dolor; porque las primeras cosas pasaron.
+
+5 Y el que estaba sentado en el trono dijo: He aquí, yo hago nuevas todas las cosas. Y me dijo: Escribe; porque estas palabras son fieles y verdaderas. 6 Y me dijo: Hecho está. Yo soy el Alfa y la Omega, el principio y el fin. Al que tuviere sed, yo le daré gratuitamente de la fuente del agua de la vida. 7 El que venciere heredará todas las cosas, y yo seré su Dios, y él será mi hijo. 8 Pero los cobardes e incrédulos, los abominables y homicidas, los fornicarios y hechiceros, los idólatras y todos los mentirosos tendrán su parte en el lago que arde con fuego y azufre, que es la muerte segunda.
+
+### La nueva Jerusalén
+
+9 Vino entonces a mí uno de los siete ángeles que tenían las siete copas llenas de las siete plagas postreras, y habló conmigo, diciendo: Ven acá, yo te mostraré la desposada, la esposa del Cordero. 10 Y me llevó en el Espíritu a un monte grande y alto, y me mostró la gran ciudad santa de Jerusalén, que descendía del cielo, de Dios, 11 teniendo la gloria de Dios. Y su fulgor era semejante al de una piedra preciosísima, como piedra de jaspe, diáfana como el cristal. 12 Tenía un muro grande y alto con doce puertas; y en las puertas, doce ángeles, y nombres inscritos, que son los de las doce tribus de los hijos de Israel; 13 al oriente tres puertas; al norte tres puertas; al sur tres puertas; al occidente tres puertas. 14 Y el muro de la ciudad tenía doce cimientos, y sobre ellos los doce nombres de los doce apóstoles del Cordero.
+
+15 El que hablaba conmigo tenía una caña de medir, de oro, para medir la ciudad, sus puertas y su muro. 16 La ciudad se halla establecida en cuadro, y su longitud es igual a su anchura; y él midió la ciudad con la caña, doce mil estadios; la longitud, la altura y la anchura de ella son iguales. 17 Y midió su muro, ciento cuarenta y cuatro codos, de medida de hombre, la cual es de ángel. 18 El material de su muro era de jaspe; pero la ciudad era de oro puro, semejante al vidrio limpio; 19 y los cimientos del muro de la ciudad estaban adornados con toda piedra preciosa. El primer cimiento era jaspe; el segundo, zafiro; el tercero, ágata; el cuarto, esmeralda; 20 el quinto, ónice; el sexto, cornalina; el séptimo, crisólito; el octavo, berilo; el noveno, topacio; el décimo, crisopraso; el undécimo, jacinto; el duodécimo, amatista. 21 Las doce puertas eran doce perlas; cada una de las puertas era una perla. Y la calle de la ciudad era de oro puro, transparente como vidrio.
+
+22 Y no vi en ella templo; porque el Señor Dios Todopoderoso es el templo de ella, y el Cordero. 23 La ciudad no tiene necesidad de sol ni de luna que brillen en ella; porque la gloria de Dios la ilumina, y el Cordero es su lumbrera. 24 Y las naciones que hubieren sido salvas andarán a la luz de ella; y los reyes de la tierra traerán su gloria y honor a ella. 25 Sus puertas nunca serán cerradas de día, pues allí no habrá noche. 26 Y llevarán la gloria y la honra de las naciones a ella. 27 No entrará en ella ninguna cosa inmunda, o que hace abominación y mentira, sino solamente los que están inscritos en el libro de la vida del Cordero
+
 ## <u>Capítulo 19:7-10 y Capítulo 22</u>
+
+7 Gocémonos y alegrémonos y démosle gloria; porque han llegado las bodas del Cordero, y su esposa se ha preparado. 8 Y a ella se le ha concedido que se vista de lino fino, limpio y resplandeciente; porque el lino fino es las acciones justas de los santos.
+
+### La cena de las bodas del Cordero
+
+9 Y el ángel me dijo: Escribe: Bienaventurados los que son llamados a la cena de las bodas del Cordero. Y me dijo: Estas son palabras verdaderas de Dios. 10 Yo me postré a sus pies para adorarle. Y él me dijo: Mira, no lo hagas; yo soy consiervo tuyo, y de tus hermanos que retienen el testimonio de Jesús. Adora a Dios; porque el testimonio de Jesús es el espíritu de la profecía.
+
+---
+
+1 Después me mostró un río limpio de agua de vida, resplandeciente como cristal, que salía del trono de Dios y del Cordero. 2 En medio de la calle de la ciudad, y a uno y otro lado del río, estaba el árbol de la vida, que produce doce frutos, dando cada mes su fruto; y las hojas del árbol eran para la sanidad de las naciones. 3 Y no habrá más maldición; y el trono de Dios y del Cordero estará en ella, y sus siervos le servirán, 4 y verán su rostro, y su nombre estará en sus frentes. 5 No habrá allí más noche; y no tienen necesidad de luz de lámpara, ni de luz del sol, porque Dios el Señor los iluminará; y reinarán por los siglos de los siglos.
+
+### La venida de Cristo está cerca
+
+6 Y me dijo: Estas palabras son fieles y verdaderas. Y el Señor, el Dios de los espíritus de los profetas, ha enviado su ángel, para mostrar a sus siervos las cosas que deben suceder pronto.
+
+7 ¡He aquí, vengo pronto! Bienaventurado el que guarda las palabras de la profecía de este libro.
+
+8 Yo Juan soy el que oyó y vio estas cosas. Y después que las hube oído y visto, me postré para adorar a los pies del ángel que me mostraba estas cosas. 9 Pero él me dijo: Mira, no lo hagas; porque yo soy consiervo tuyo, de tus hermanos los profetas, y de los que guardan las palabras de este libro. Adora a Dios.
+
+10 Y me dijo: No selles las palabras de la profecía de este libro, porque el tiempo está cerca. 11 El que es injusto, sea injusto todavía; y el que es inmundo, sea inmundo todavía; y el que es justo, practique la justicia todavía; y el que es santo, santifíquese todavía.
+
+12 He aquí yo vengo pronto, y mi galardón conmigo, para recompensar a cada uno según sea su obra. 13 Yo soy el Alfa y la Omega, el principio y el fin, el primero y el último.
+
+14 Bienaventurados los que lavan sus ropas, para tener derecho al árbol de la vida, y para entrar por las puertas en la ciudad. 15 Mas los perros estarán fuera, y los hechiceros, los fornicarios, los homicidas, los idólatras, y todo aquel que ama y hace mentira.
+
+16 Yo Jesús he enviado mi ángel para daros testimonio de estas cosas en las iglesias. Yo soy la raíz y el linaje de David, la estrella resplandeciente de la mañana.
+
+17 Y el Espíritu y la Esposa dicen: Ven. Y el que oye, diga: Ven. Y el que tiene sed, venga; y el que quiera, tome del agua de la vida gratuitamente.
+
+18 Yo testifico a todo aquel que oye las palabras de la profecía de este libro: Si alguno añadiere a estas cosas, Dios traerá sobre él las plagas que están escritas en este libro. 19 Y si alguno quitare de las palabras del libro de esta profecía, Dios quitará su parte del libro de la vida, y de la santa ciudad y de las cosas que están escritas en este libro.
+
+20 El que da testimonio de estas cosas dice: Ciertamente vengo en breve. Amén; sí, ven, Señor Jesús. 21 La gracia de nuestro Señor Jesucristo sea con todos vosotros. Amén.
